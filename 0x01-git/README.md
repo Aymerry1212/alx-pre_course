@@ -1,1 +1,1 @@
-I love Nigeria
+God bless Nigeria
